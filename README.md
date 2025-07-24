@@ -19,8 +19,8 @@ Meu objetivo é ajudar pessoas com TEA, dificuldades de fala, fonoaudiólogos, e
 ## 🙏 Apoie este projeto
 
 Se você acredita que tecnologia pode ter um propósito humano e acessível, considere me apoiar:
-
-- 💸 **Pix / PayPal:** `diegofernandocruz@gmail.com`
+  💸 ** Pix ** pixsantander27@gmail.com
+- 💸 **PayPal:** `diegocodigobits@gmail.com`
 - 📱 **WhatsApp:** +55 (14) 99705-2356
 
 ---
