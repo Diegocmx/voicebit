@@ -49,4 +49,4 @@ No GPU required. 100% local. Ethical, human-centered AI.
 If this touched you, or if you want to support a father building for his son:
 
 - 💸 **Pix / PayPal:** `diegofernandocruz@gmail.com`
-- 📱 **WhatsApp:** +55 (14) 99705-2356
+- 📱 **WhatsApp:** +55 (14) 98826-9226
